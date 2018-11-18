@@ -18,3 +18,6 @@ joined Abhitech on 2nd May 2012 as trainee Engineer.
 
 By first salary was 14558.
 
+promoted to assistant manager on may 2013.
+
+my new package was 243000.
